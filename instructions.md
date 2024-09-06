@@ -42,7 +42,7 @@
 ### Dinner
 
 - Have a calm, relaxing dinner.
-  - Options: Vegetable stir-fry, grilled fish with steamed veggies.
+  - Options: Vegetable stir-fry, grilled fish with steamed veggies. - Nigerian Jollof rice.
 
 ### Relaxing Wind-Down
 
